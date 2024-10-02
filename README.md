@@ -1,4 +1,4 @@
-![telas](https://github.com/user-attachments/assets/3dd66dae-fff4-47c3-9c6c-fc37198aa96c)
+
 
 
 # Indice
