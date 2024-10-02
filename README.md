@@ -1,4 +1,5 @@
-https://github.com/Giurllanpimentel/AppTurmas/issues/1#issue-2560466515
+![tela](https://github.com/user-attachments/assets/25351d8c-6ee4-45e6-baf4-9013ad81009b)
+
 
 
 # Indice
